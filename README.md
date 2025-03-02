@@ -8,4 +8,4 @@ It is my belate November [#30DayMapChallenge](https://30daymapchallenge.com) 202
 
 ## 2.Lines
 
-![Bus lines](https://github.com/user-attachments/assets/ff56559d-a6e0-4156-a272-3de3e4425403)
+![Bus lines](https://github.com/user-attachments/assets/fb7c53a2-f2b9-4b00-810c-7745246c3c8e)
