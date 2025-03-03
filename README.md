@@ -1,5 +1,5 @@
 # 30DayMapChallenge
-It is my belate November [#30DayMapChallenge](https://30daymapchallenge.com) 2024 in March 2025.
+It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com) in March 2025.
 
 ## 1. Points
 
