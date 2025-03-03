@@ -12,4 +12,5 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 
 ## 3. Polygons
 
-![klub](https://github.com/user-attachments/assets/112c7159-ac77-4203-9434-cfe6e942fb95)
+![klub](https://github.com/user-attachments/assets/605b63ed-7580-4e72-9164-4bc2839eddf1)
+
