@@ -14,7 +14,7 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 
 ![klub](https://github.com/user-attachments/assets/605b63ed-7580-4e72-9164-4bc2839eddf1)
 
-## Hexagons
+## 4. Hexagons
 
 ![heks_pop](https://github.com/user-attachments/assets/0be4bdf5-44aa-4f3b-956a-b8637d7c3625)
 
