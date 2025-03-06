@@ -21,3 +21,7 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 ## 5. A journey
 
 ![szlak](https://github.com/user-attachments/assets/e63ce7a9-75f8-49ef-a11c-82d472d6e99f)
+
+## 6. Raster
+
+![magura](https://github.com/user-attachments/assets/380b52d4-f993-41ae-9e96-f54b54292e21)
