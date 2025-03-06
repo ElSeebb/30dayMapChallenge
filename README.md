@@ -24,4 +24,4 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 
 ## 6. Raster
 
-![magura](https://github.com/user-attachments/assets/380b52d4-f993-41ae-9e96-f54b54292e21)
+![magura](https://github.com/user-attachments/assets/63962935-b992-4cca-aab1-1fe55bc5c928)
