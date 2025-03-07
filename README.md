@@ -25,3 +25,7 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 ## 6. Raster
 
 ![magura](https://github.com/user-attachments/assets/63962935-b992-4cca-aab1-1fe55bc5c928)
+
+## 7. Vintage style
+
+![sz_vint12](https://github.com/user-attachments/assets/62a0c1f5-6f63-407f-89d9-e06423c6a04d)
