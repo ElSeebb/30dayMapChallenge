@@ -29,3 +29,7 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 ## 7. Vintage style
 
 ![sz_vint12](https://github.com/user-attachments/assets/62a0c1f5-6f63-407f-89d9-e06423c6a04d)
+
+## 8. Data: HDX
+
+![lotniska](https://github.com/user-attachments/assets/55f53e22-2ea8-45f5-a67d-64ac3f2c01df)
