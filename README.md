@@ -1,7 +1,10 @@
 # 30DayMapChallenge
 It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com) in March 2025.
 
-## 1. Points
+
+
+
+## 1. Points 
 
 ![Population Map of New Hanseatic League Cities](https://github.com/user-attachments/assets/1a1dfe4e-c905-4a94-b072-5fd3363a2523)
 
@@ -33,3 +36,8 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 ## 8. Data: HDX
 
 ![lotniska](https://github.com/user-attachments/assets/55f53e22-2ea8-45f5-a67d-64ac3f2c01df)
+
+## 9. AI only
+
+![OIG1 M PfKQvJ4gX9RGY9](https://github.com/user-attachments/assets/4a9b876c-e160-4915-913b-01e3215dd171)
+
