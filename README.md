@@ -43,6 +43,7 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 
 ## 10. Pen & paper
 
-![20250310_121950](https://github.com/user-attachments/assets/e6961af0-63bb-4fb4-98c1-2fd47f00c134)
+![20250310_121950](https://github.com/user-attachments/assets/7dbd32e1-7e1e-483e-9139-8788a67b4a14)
+
 
 
