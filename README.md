@@ -48,3 +48,7 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 ## 11. Arctic
 
 ![renif1](https://github.com/user-attachments/assets/4df6dbf4-d4bc-4e99-8191-61abd6c8343c)
+
+## 12. Time and space
+
+![tat](https://github.com/user-attachments/assets/22770150-a47d-4084-93b1-324e869e5642)
