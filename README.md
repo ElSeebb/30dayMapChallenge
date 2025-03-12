@@ -51,4 +51,5 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 
 ## 12. Time and space
 
-![tat](https://github.com/user-attachments/assets/22770150-a47d-4084-93b1-324e869e5642)
+![tat2](https://github.com/user-attachments/assets/88a8aa96-6245-46d1-bb55-39cd96a54881)
+
