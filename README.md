@@ -57,4 +57,8 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 
 ![Bez nazwy](https://github.com/user-attachments/assets/4c2bcd73-8c1e-43f2-b1cc-1c97db51c2ed)
 
+## 14. A world map
+
+![over_mln](https://github.com/user-attachments/assets/2fcc2de2-0ba7-4e27-b65b-9a9c306c17bd)
+
 
