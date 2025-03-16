@@ -64,3 +64,8 @@ It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com
 ## 15. My data
 
 ![odw](https://github.com/user-attachments/assets/05318374-c30b-4213-a4e5-2e8a46fa25a5)
+
+## 16. Choropleth
+
+![teatr](https://github.com/user-attachments/assets/2931eb5a-3acc-4b24-a30e-dfe61cf029a8)
+
