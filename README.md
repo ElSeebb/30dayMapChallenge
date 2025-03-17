@@ -70,3 +70,10 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 
 ![teatr](https://github.com/user-attachments/assets/2931eb5a-3acc-4b24-a30e-dfe61cf029a8)
 
+## 17. Collaborative map
+
+[Arda](https://github.com/bburns/Arda)
+[ME-GIS](https://github.com/andrewheiss/ME-GIS)
+
+![lotr_tr](https://github.com/user-attachments/assets/f1437d81-4ab3-4b3a-a444-e6f40c4b7029)
+
