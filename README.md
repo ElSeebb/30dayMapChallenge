@@ -81,3 +81,8 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 
 ![1](https://github.com/user-attachments/assets/aad35c4f-31ad-4bff-8dcf-905e149eccc9)
 
+## 19. Typography
+
+![typo](https://github.com/user-attachments/assets/7e8912ad-d740-4a76-a132-a76711363465)
+
+
