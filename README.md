@@ -86,3 +86,8 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ![typo](https://github.com/user-attachments/assets/7e8912ad-d740-4a76-a132-a76711363465)
 
 
+## 20. OpenStreetMap
+
+![amb](https://github.com/user-attachments/assets/b84b18ae-377c-47c5-8cdf-b3c68b5ca7b8)
+
+
