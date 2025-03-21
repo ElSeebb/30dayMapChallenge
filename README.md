@@ -92,7 +92,7 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 
 ## 21. Conflict
 
-![mckf](https://github.com/user-attachments/assets/5beb8377-d091-40d9-8f26-1c84161ad0fa)
+![mckf1](https://github.com/user-attachments/assets/8a846c8c-f106-4796-8b81-29b2ca453174)
 
 
 
