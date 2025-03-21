@@ -90,4 +90,9 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 
 ![amb](https://github.com/user-attachments/assets/b84b18ae-377c-47c5-8cdf-b3c68b5ca7b8)
 
+## 21. Conflict
+
+![mckf](https://github.com/user-attachments/assets/5beb8377-d091-40d9-8f26-1c84161ad0fa)
+
+
 
