@@ -95,4 +95,9 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ![mckf](https://github.com/user-attachments/assets/13fca7d9-56a6-43f3-9aeb-ffbd65da56f5)
 
 
+## 22. 2 colors
+
+![fin](https://github.com/user-attachments/assets/a4bfdbc7-7fd1-4fe9-a7ed-5d6d579dc8b9)
+
+
 
