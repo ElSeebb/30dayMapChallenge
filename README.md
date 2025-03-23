@@ -100,4 +100,7 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ![fin](https://github.com/user-attachments/assets/a4bfdbc7-7fd1-4fe9-a7ed-5d6d579dc8b9)
 
 
+## 23. Memory
+
+![prof](https://github.com/user-attachments/assets/91490afa-a376-44c3-96fa-f031e7f4f6d9)
 
