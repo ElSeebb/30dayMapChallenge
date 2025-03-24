@@ -104,3 +104,7 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 
 ![prof](https://github.com/user-attachments/assets/91490afa-a376-44c3-96fa-f031e7f4f6d9)
 
+
+## 24. Only circular shapes	
+
+![pop](https://github.com/user-attachments/assets/1bd25787-3305-48d8-8646-805824e61e7f)
