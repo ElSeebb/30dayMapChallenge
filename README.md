@@ -108,3 +108,8 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ## 24. Only circular shapes	
 
 ![pop](https://github.com/user-attachments/assets/1bd25787-3305-48d8-8646-805824e61e7f)
+
+
+## 25. Heat
+
+![temp](https://github.com/user-attachments/assets/9d304e20-50e1-4cf8-9cc9-3a814f1d24b6)
