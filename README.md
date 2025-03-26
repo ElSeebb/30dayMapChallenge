@@ -113,3 +113,9 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ## 25. Heat
 
 ![temp](https://github.com/user-attachments/assets/9d304e20-50e1-4cf8-9cc9-3a814f1d24b6)
+
+
+## 26. Map projections
+
+![proj2](https://github.com/user-attachments/assets/0b35c097-c266-4c3e-9af6-07da63b29534)
+
