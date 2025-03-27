@@ -119,3 +119,9 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 
 ![proj2](https://github.com/user-attachments/assets/0b35c097-c266-4c3e-9af6-07da63b29534)
 
+
+## 27. Micromapping	
+
+![agh](https://github.com/user-attachments/assets/55e26e5a-e1cb-429c-9b79-7b56ccaf7c49)
+
+
