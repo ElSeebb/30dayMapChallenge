@@ -125,3 +125,6 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ![agh](https://github.com/user-attachments/assets/55e26e5a-e1cb-429c-9b79-7b56ccaf7c49)
 
 
+## 28. The blue planet
+
+![jezioro](https://github.com/user-attachments/assets/5bb24237-8db6-42fb-ba92-ced0ef2528ab)
