@@ -128,3 +128,8 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ## 28. The blue planet
 
 ![jezioro](https://github.com/user-attachments/assets/5bb24237-8db6-42fb-ba92-ced0ef2528ab)
+
+
+## 29. Overture
+
+![overture](https://github.com/user-attachments/assets/45a3997c-ba2d-4534-8a1f-7be81f866b57)
