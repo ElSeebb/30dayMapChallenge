@@ -1,5 +1,5 @@
 # 30DayMapChallenge
-It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com) in March 2025. 
+It is my belate November 2024 [#30DayMapChallenge](https://30daymapchallenge.com) in March 2025, made out of boredom.
 In the next edition, I hope to take part at the scheduled time, and until then I invite you to familiarize yourself with the delayed one.
 
 
