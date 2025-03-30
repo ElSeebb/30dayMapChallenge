@@ -133,3 +133,9 @@ In the next edition, I hope to take part at the scheduled time, and until then I
 ## 29. Overture
 
 ![overture](https://github.com/user-attachments/assets/45a3997c-ba2d-4534-8a1f-7be81f866b57)
+
+
+## 30. The final map
+
+![bialka2](https://github.com/user-attachments/assets/023eec11-a41d-4a5f-90f4-0e9b6018d505)
+
